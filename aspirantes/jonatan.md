@@ -1,3 +1,3 @@
 # Request
 
-acéntenme en la legión del mal
+acéptenme en la legión del mal
